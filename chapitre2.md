@@ -1,0 +1,3 @@
+# Chapitre 2 – Le mystère s’épaissit
+
+Nina trouva un vieux carnet caché dans une étagère de sa librairie. Il contenait des indices mystérieux...
